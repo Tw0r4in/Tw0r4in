@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Tw0r4in
+- 👀 I’m interested in Shooter games like is battlefield 5.
+- 🌱 I’m currently learning Scripting
+- 📫 If you want to reach to me then my Discord is Tworain#1203 (europe).
